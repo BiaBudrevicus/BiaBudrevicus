@@ -1,5 +1,5 @@
 ## Bora Galera!🫀🖤
-meu nome é Ana Beatriz Budrevicus
+###Olá me chamo **Ana Beatriz Budrevicus**
 
 - Sou professora
 - Estou estudando no [Alura](https://wwww.alura.com.br)
