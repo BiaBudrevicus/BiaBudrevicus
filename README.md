@@ -1,5 +1,5 @@
 ## Bora Galera!🫀🖤
-### Olá me chamo **Ana Beatriz **
+### Olá me chamo ** Ana Beatriz **
 
 - Sou professora
 - Estou estudando no [Alura](https://wwww.alura.com.br)
