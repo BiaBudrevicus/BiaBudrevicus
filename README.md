@@ -3,6 +3,8 @@
 
 
 - Sou professora
+- Amo literatura
+- Gosto de animes e filmes de terror.
 - Estou estudando no [Alura](https://wwww.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 
