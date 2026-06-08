@@ -1,6 +1,5 @@
-## Bora Galera!🫀🖤
+## Bora Galera!:🫀🖤
 ### Olá me chamo _Ana Beatriz_
-
 
 - Sou professora
 - Amo literatura
@@ -10,9 +9,8 @@
 
   ### Entrar em contato comigo 📫
 ana.budrevicus@escola.pr.gov.br
-
-
  @biabudrevicus
 
  ![](https://media1.tenor.com/m/fZBe5B-vku4AAAAC/sigh-anime.gif)
 
+![](https://tenor.com/bVtc7.gif)
