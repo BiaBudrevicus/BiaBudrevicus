@@ -13,4 +13,5 @@ ana.budrevicus@escola.pr.gov.br
 
  ![](https://media1.tenor.com/m/fZBe5B-vku4AAAAC/sigh-anime.gif)
 
-![](https://tenor.com/pt-BR/view/spongebob-squarepants-squidward-tentacles-screaming-gif-7902262000021118988)
+![](https://media1.tenor.com/m/bap5a8lToAwAAAAC/spongebob-squarepants-squidward-tentacles.gif)
+
