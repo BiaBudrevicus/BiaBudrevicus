@@ -13,5 +13,5 @@ ana.budrevicus@escola.pr.gov.br
 
  ![](https://media1.tenor.com/m/fZBe5B-vku4AAAAC/sigh-anime.gif)
 
-![](https://media1.tenor.com/m/bap5a8lToAwAAAAC/spongebob-squarepants-squidward-tentacles.gif)
+![](https://media1.tenor.com/m/W-oA2c99rJQAAAAC/spongebob-spongebob-squarepants.gif)
 
