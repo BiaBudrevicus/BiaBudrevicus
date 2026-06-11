@@ -1,6 +1,6 @@
 ## Bora Galera!:🫀🖤
 ### Olá me chamo _Ana Beatriz_
-
+🐈‍⬛
 - Sou professora
 - Amo literatura  e viajar
 - Adoro animes e filmes de terror.
@@ -13,5 +13,5 @@ ana.budrevicus@escola.pr.gov.br
 
  ![](https://media1.tenor.com/m/fZBe5B-vku4AAAAC/sigh-anime.gif)
 
-
+![](https://media1.tenor.com/m/WUZAifzrNbEAAAAC/panda.gif)
 
