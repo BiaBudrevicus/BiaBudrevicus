@@ -13,7 +13,3 @@ ana.budrevicus@escola.pr.gov.br
 
  ![](https://media1.tenor.com/m/fZBe5B-vku4AAAAC/sigh-anime.gif)
 
-![](https://media1.tenor.com/m/WUZAifzrNbEAAAAC/panda.gif)
-
-![](https://media1.tenor.com/m/zg7MS65BiKAAAAAC/puss-in-boots-cat.gif)
-![]( 
