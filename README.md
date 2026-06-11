@@ -2,10 +2,10 @@
 ### Olá me chamo _Ana Beatriz_
 
 - Sou professora
-- Amo literatura
-- Gosto de animes e filmes de terror.
+- Amo literatura  e viajar
+- Adoro animes e filmes de terror.
 - Estou estudando no [Alura](https://wwww.alura.com.br)
-- Estou me desenvolvendo na linguagem JavaScript
+- Estou me desenvolvendo na linguagem JavaScript.
 
   ### Entrar em contato comigo 📫
 ana.budrevicus@escola.pr.gov.br
