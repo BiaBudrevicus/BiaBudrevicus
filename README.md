@@ -1,6 +1,6 @@
 ## Bora Galera!:🫀🖤
-### Olá me chamo _Ana Beatriz_ _Bia_
-🐈‍⬛ ✈️
+### Olá me chamo _Ana Beatriz_ _Bia_ _oiiii_
+🐈‍⬛ ✈️ 🇯🇲 👍
 - Sou professora
 - Amo literatura  e viajar
 - Adoro animes e filmes de terror.
@@ -10,6 +10,8 @@
   ### Entrar em contato comigo 📫
 ana.budrevicus@escola.pr.gov.br
  @biabudrevicus
+
+![](https://media1.tenor.com/m/zg7MS65BiKAAAAAC/puss-in-boots-cat.gif)
 
  ![](https://media1.tenor.com/m/fZBe5B-vku4AAAAC/sigh-anime.gif)
 
