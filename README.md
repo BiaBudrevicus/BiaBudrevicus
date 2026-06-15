@@ -1,5 +1,5 @@
 ## Bora Galera!:🫀🖤
-### Olá me chamo _Ana Beatriz_ _Bia_ _oiiii_
+### Olá me chamo _Ana Beatriz_ 
 
 - Sou professora 🧑‍🏫
 - Amo literatura📚 e viajar ✈️ 
